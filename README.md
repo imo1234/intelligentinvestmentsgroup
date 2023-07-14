@@ -1,1 +1,1 @@
-# intelligentinvestmentsgroup.github.io
+# intelligentinvestmentsgroup
